@@ -1,1 +1,2 @@
 # here-now
+I'm Chuck Ceraso, an artist and instructor living in the Boulder, Colorado area. I studied with American master Henry Hensche for several years before his death in 1991. I learned a way of seeing that changed my day to day experience of the world. This vision is the door I use to enter my subject in order to discover something more in my experience. In this I strive to create paintings that are alive with presence.
